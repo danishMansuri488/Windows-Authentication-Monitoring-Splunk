@@ -290,7 +290,7 @@ https://github.com/danishMansuri488
 
 **LinkedIn**
 
-https://www.linkedin.com/in/YOUR-LINKEDIN-USERNAME/
+https://www.linkedin.com/in/danish-mansuri-aa9964261/
 
 ---
 
